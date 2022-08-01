@@ -1,0 +1,5 @@
+- 👋 Hi, I’m kaua.silvaaa
+- 👀 I’m interested in ...jogar bola
+- 🌱 I’m currently learning ...participa de um time de futebol na europa
+- 💞️ I’m looking to collaborate on ...partipa da copa do mundo
+- 📫 How to reach me ...jogador de futebol
